@@ -1,0 +1,1 @@
+# Google_Colab_Veri_Arttirma_2
